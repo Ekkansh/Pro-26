@@ -1,0 +1,2 @@
+# Pro-26
+Dabeli, an extremely popular gujarati street food snack recipe made with indian pav bread and stuffed with a unique blend of masala. the recipe looks very similar to the maharashtrian vada pav snack but has a combination of taste and flavours in it. generally, dhabeli snack is consumed as an evening snack with a cup of tea or coffee, but can also be consumed for morning breakfast and noon lunch.
